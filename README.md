@@ -1,0 +1,3 @@
+# Managing-National-Foreign-Debt-burdens-for-developing-countries-like-Nigeria-
+
+Nigeria's Economy is battling with pressure of meeting the huge demands of her foreign and domestic debt profiles, and this, is dealing a deadly blow on the Countries revenue and affecting the growth of the Economy, in this project, I am set to work with contributors and collaborators who are willing to dig deep and xray the challenges that developing countries are facing meeting up their huge debt requirements from their foreign and local lenders and what can be done to salvage the situation, reduce the huge burden on the economy and improve the welfare of her citizens.
